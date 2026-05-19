@@ -1,4 +1,4 @@
-# 
+# smart Affinity Photo para PC plugins é o melhor Affinity Photo para PC plugins com animação e texturização. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
